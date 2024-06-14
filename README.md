@@ -11,4 +11,8 @@
 - 
 - ⚡ Fun fact: estou tentando ser adestrador de tamandua bandeira
 
-![](https://media1.tenor.com/m/6O1LblG44GAAAAAC/kissing-couple-rdr2.gif)
+![](https://media1.tenor.com/m/VY689NiAmTMAAAAd/stardew-valley-play.gif)
+
+![](https://media1.tenor.com/m/XauOGeUrrhYAAAAC/emily-stardew-valley.gif)
+
+![](https://media.tenor.com/3NreWr7gnTAAAAAM/sad-african-african-lore.gif)
